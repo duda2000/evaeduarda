@@ -1,1 +1,1 @@
-# evaeduarda
+# pensamento compultacional
